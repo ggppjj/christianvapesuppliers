@@ -1,37 +1,12 @@
-## Welcome to GitHub Pages
+## Bless our mess!!!
+![construction](https://thumbs.gfycat.com/ClassicSneakyGyrfalcon-size_restricted.gif)
+Hello and welcome to the best site for finding christian vape supplies (NOT SUPPLIERS IT WAS A TYPO BUT I ALRAEDY PAYED FOR THE SITE AND THEY WONT GIVE ME A REFUND) and oru walk with christ
 
-You can use the [editor on GitHub](https://github.com/ggppjj/christianvapesuppliers/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+![vape](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRWNQCf3qA3ryEp0gPiPD3p8b4l6_wzcl-fVg&usqp=CAU)
+![vape2](https://i1.sndcdn.com/artworks-000159699438-qi9mst-t500x500.jpg)
+![vape3](https://cdn.shopify.com/s/files/1/0033/6802/6182/products/image_b74d6756-c40e-4b4d-8248-540dde208c13_620x.jpg?v=1625787026)
 
-### Markdown
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/ggppjj/christianvapesuppliers/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+to see more ask for ken
