@@ -1,3 +1,17 @@
+## Update April EIGHT 22
+
+Ok so we're working on a special blemd of NEW formaulas that should really knock the jesuis into your sprit L O L!!!
+
+IT's made from 100% real vape juice and no aditives like tobacco or spit, we promise!!!!
+
+Pricing: 
+
+To Be Determin!!!!!
+
+## STAY TUNES!@!!!!
+
+---
+
 ## Bless our mess!!!
 ![construction](https://thumbs.gfycat.com/ClassicSneakyGyrfalcon-size_restricted.gif)
 Hello and welcome to the best site for finding christian vape supplies (NOT SUPPLIERS IT WAS A TYPO BUT I ALRAEDY PAYED FOR THE SITE AND THEY WONT GIVE ME A REFUND) and oru walk with christ
