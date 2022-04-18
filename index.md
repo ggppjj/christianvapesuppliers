@@ -1,3 +1,14 @@
+## Update from the vape brewer:
+
+Helo this is an important update from the vape juice berewer please disREGARD the previs post about not having spit or tabaco
+
+There has neber been spit or tobaco in the vape juice it is 100% natural and blessed by a real christian
+
+Thank you all and happy vaping,
+ps expevt new falvors soon
+
+<img src="https://808novape.org/wp-content/uploads/2019/12/25ae3868-7494-433d-a1b4-9495e528a043-XXX_JC1_8124.jpg" width="250" height="500">
+
 ## Update April EIGHT 22
 
 Ok so we're working on a special blemd of NEW formaulas that should really knock the jesuis into your sprit L O L!!!
