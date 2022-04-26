@@ -1,3 +1,13 @@
+## 🚨 SPECIAL UPDATE PLEASE READ IMPORTANT 🚨
+
+Do to the SUPPLY CHAIN problems as a result of the crooked JOE BRIDEN three was a breakDOWN of the ingredients in the vape juice
+
+as a result a small amount of toxic methanol was put into the vape juices however this has been CORRECTED and in the future only the pursetst most nutural glycerin will be used for the vape juices that you all love even if this means that the over all supply of juice is diminished. 
+
+Demand is at an all time high for christian vape juice and we will continue making as much as we can god BLESS YOU and HAPPY EASTer
+
+<img src="https://i.ytimg.com/vi/ZGdi3FgXcEw/maxresdefault.jpg" width="500" height="250">
+
 ## Update from the vape brewer:
 
 Helo this is an important update from the vape juice berewer please disREGARD the previs post about not having spit or tabaco
