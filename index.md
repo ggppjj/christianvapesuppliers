@@ -1,3 +1,17 @@
+## update from the wbe team
+
+sorry for sayign that the vapes had spit in them 
+
+also does anyone know hos to make text go across the creen like a blinky thing becasue i think it owould look really cool
+
+
+please buy christina vapes otherwise youll be visited by th devil
+
+<img src="https://c.tenor.com/Oc72kk6SFJIAAAAM/devil-smile.gif">
+
+
+new flacor is cinamon applesauce TO BE ANNOUCNED soon
+
 ## 🚨 SPECIAL UPDATE PLEASE READ IMPORTANT 🚨
 
 Do to the SUPPLY CHAIN problems as a result of the crooked JOE BRIDEN three was a breakDOWN of the ingredients in the vape juice
