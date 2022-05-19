@@ -1,3 +1,11 @@
+## 🚨🚨🚨🚨🚨NEW FLAVER ALERT🚨🚨🚨🚨🚨
+
+new flaver is applesace
+
+had to drop cvinnamon it was spciy in the luings
+
+- Sent from my iPhone
+
 ## update from the wbe team
 
 sorry for sayign that the vapes had spit in them 
