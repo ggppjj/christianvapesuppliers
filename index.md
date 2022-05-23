@@ -1,3 +1,17 @@
+## Daily JKoke of the Day!
+
+<img src="https://c.tenor.com/aY4Z1Si1VeIAAAAC/laugh-slam.gif">
+
+Joke: whats a socialist
+Answer: Its like a commie
+Punchline: No no no whats a socialist i know what a piece of shit is
+
+Froward on to three firends and get them to laugh and you can get one free oz with every 23oz bottle purcahse!
+
+<img src="https://i.gifer.com/3yUM.gif">
+
+##   
+
 update: he's been found
 thanks!
 
