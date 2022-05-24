@@ -1,3 +1,9 @@
+## do not look at the infected pictured 
+they will give youtr a virus probably
+
+heres a better one
+<img src="https://qph.cf2.quoracdn.net/main-qimg-a865d7054a98d4232fbbf3ce84836eeb-lq">
+
 ## joke 2
 
 hello fellow jesus-heads!! (as the discord droup would say!)
