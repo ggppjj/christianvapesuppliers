@@ -1,3 +1,15 @@
+## joke 2
+
+hello fellow jesus-heads!! (as the discord droup would say!)
+
+Web Team here again for antoher joke of the day this time provided by smith
+
+smith says:Smith — Today at 2:44 PM
+considering how much his family likes crack Brandon is really f'in me over here
+
+amen!
+<img src="https://i.gifer.com/81PD.gif">
+
 ## Daily JKoke of the Day!
 
 <img src="https://c.tenor.com/aY4Z1Si1VeIAAAAC/laugh-slam.gif">
