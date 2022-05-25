@@ -1,3 +1,17 @@
+## free crap with pur ase
+
+Hello christinavapesupplies family!
+
+Webmaster (heh just a techinal term!) here to let you know about some great deasl coming through the tube!
+
+Due to a recent windfall of crabs all purcahses of cVS vape for the next _MONTH_ will contain at _LEATS_ one live crab as a special gift along with the vape joice
+
+this offer valid for unied states customers only and is not for old cusotmers but only new ones
+
+thank you for vapin with jesus rock on!
+
+<img src="https://i.gifer.com/RnWU.gif">
+
 ## do not look at the infected pictured 
 they will give youtr a virus probably
 
