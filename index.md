@@ -1,3 +1,13 @@
+## NEWS UPGATE (FAKE NEWS THAT IS!!!!!!!!!0
+
+we do NOT suport irac and their WAR on VAPES
+
+we are an GOD fearign AMERICAN company with TRADITON values and NO SPIT IN OUR PORODUCTS AT ALL I CANNOT STRESS THAT TEHOUGH
+
+GOD BLESS OUR TOOPS
+
+<img src="i.pinimg.com/originals/b3/18/6b/b3186b96105d7d82b77d748bd14a08ca.jpg">
+
 ## update on freak rab
 
 it's not just old customerssorry 
