@@ -1,3 +1,20 @@
+## Update on cubres
+
+Here at chrintian Vape supplies (not suppliers) we supply christian vapes to cristians, its what were good at and its what we know, but as of now, there is a big, large, looming threat to our democracy, way of life, and christian values, and that threat is so simple that it cm be summed up in ONE WORD: 
+
+CUBES ARE TAKING OVER HOLLYWOOD
+
+Cubes (a set of lines made into multiple squacres) are singlehandedly destroying america with their violence, their charisma, and most importantly their cube-like nature. 
+
+AND THEY DONT EVEN HAVE HANDS!!!!!!!!!!!!!!!
+
+Needles to say, if you dont have hands then you cannot vape. As of now vape technology has not yet crac ked the handless barrier (keep an eye ouy thoguh for further developments in this developing feild unless you also have no eyes in which case im sorry you had to see that)
+
+You cannot trust anything that cannot vape, like fish or clowns. 
+
+![placeholder]([https://via.placeholder.com/100x150](https://media.istockphoto.com/vectors/forbidden-sign-with-cube-icon-isolated-on-white-background-using-cube-vector-id1125997255)){:style="display:block; margin-left:auto; margin-right:auto"}
+
+
 ## NEWS UPGATE (FAKE NEWS THAT IS!!!!!!!!!0
 
 we do NOT suport irac and their WAR on VAPES
