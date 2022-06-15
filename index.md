@@ -13,7 +13,7 @@ And dont get ̴m̷e̵ ̵s̴t̴a̸r̷t̸e̵d̴ ̴o̸n̴ ̵t̶h̸e̴ ̶w̴h̶o̵l�
 
 we also have a few vape annouchemts coming throught eh pipeline well keep you updated when we know more!
 
-<img src=https://i.imgur.com/kpgbm2d.gif>
+<img src="https://i.imgur.com/kpgbm2d.gif">
 
 ## Update on cubres
 
