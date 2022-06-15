@@ -1,3 +1,20 @@
+## we are under a tack
+
+Hello fellow christan vapers
+
+We are here writing you torday in order so that you can see what kinds of perseqution that we followers of the way the light the one true real god jesus have to put up with on a dayly bases
+
+People tell us that we arent allowed yto PRAY or LOVE or HOPE or DREAM and these things are very improteant to the cghristian faith
+
+
+There is also a war on chrimstas because you never hear anyone say things like marry christmas outside of the holidays season which I find very supisious because christmas is not just one day its a way of thinking that makes you closer to god so you should say merry chrismas whenever possible ok?
+
+And dont get ̴m̷e̵ ̵s̴t̴a̸r̷t̸e̵d̴ ̴o̸n̴ ̵t̶h̸e̴ ̶w̴h̶o̵l̵e̶ ̵l̸i̴b̵e̶r̵a̶l̷ ̸a̶g̶e̴r̴n̵a̷ ̴a̴b̶o̷u̸t̵ ̴t̸a̸x̵i̷n̵g̴ ̵c̴h̴u̷r̸c̷h̴e̴s̴!̴ Cghruiches should be tax free because i̶͉̐̊f̵̞̗̊ ̸̤̭͊I̸͎̯͂́ ̸̘͐h̸̛̛͕a̶͉̞̓̌v̵̭̀̍ë̷̡́̚ ̶̞͉̆t̶̨̄̈́ỏ̶͖̱ pay taxes in order to go to church then i will not be happy!!!!!!!!!!!!!!!!!!!!! We pay neougbh taxes as it is goverment1!!! NO TAXES FOR CHUCH! JESUS DIDNT PAYU TAXES AND NEITHER DO I!!!
+
+we also have a few vape annouchemts coming throught eh pipeline well keep you updated when we know more!
+
+<img src=https://i.imgur.com/kpgbm2d.gif>
+
 ## Update on cubres
 
 Here at chrintian Vape supplies (not suppliers) we supply christian vapes to cristians, its what were good at and its what we know, but as of now, there is a big, large, looming threat to our democracy, way of life, and christian values, and that threat is so simple that it cm be summed up in ONE WORD: 
