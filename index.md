@@ -1,3 +1,9 @@
+## official chat room for patriots and movie lovers
+
+<textarea height="200" width="100"></textarea><br>
+<input type="text" id="fname" name="fname">
+<input type="button" id="fname" name="fname" value="Submit CHAT!">
+
 ## we are under a tack
 
 Hello fellow christan vapers
